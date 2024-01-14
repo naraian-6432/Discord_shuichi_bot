@@ -1,0 +1,1 @@
+# Discord_shuichi_bot
